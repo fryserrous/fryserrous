@@ -1,4 +1,4 @@
-<img width="60" height="40" alt="IMG_4279" src="https://github.com/user-attachments/assets/93d4e637-219c-4428-aee7-d498aa1cff4b" />
+<img width="1633" height="767" alt="IMG_4293" src="https://github.com/user-attachments/assets/5ea5d278-a243-4312-9ba9-5cb0d2fabb1b" />
 
 hi , im frys and i go by he / him
 
